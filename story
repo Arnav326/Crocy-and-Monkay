@@ -1,1 +1,3 @@
-THere was once a monkey who lived on a mango tree. His friend crocy the crocidile would come visit and he would give mangoes to him.
+THere was once a monkey who lived on a mango tree. His friend crocy the crocidile would come visit and he would give mangoes to him. One day he took the mangoes to ms crocy. 
+She ate the mangoes and realized that the monkey could be tastier. She suggested to bring the monkey so that they could feast on him. Crocy went to Monkay and invited him for dinner, 
+but didn't say the main course. Monkay liked food so he jumped off the tree and went with crocy.
